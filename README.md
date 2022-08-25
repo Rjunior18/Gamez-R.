@@ -1,2 +1,2 @@
-# Gamez-R.
+# Gamez-R
 Activida B1
